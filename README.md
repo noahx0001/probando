@@ -1,7 +1,7 @@
 # probando
 # Iker es gay
 # Probando 7.o
-# juan gay
+# iker gay
 # Hola mundo!
 # saquen los fornikees
 # saquen al iker
